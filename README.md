@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **backend stacks.**
 
-- 💬 Ask me about **Digital experience**
+- 💬 Ask me about **Digital experience and customer journey optimisation.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
